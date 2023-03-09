@@ -1,4 +1,4 @@
-# Welcome to my page ‼️
+# Welcome
 
 - I’m Omar Abdelati, I go by @Ammuri online 👋
 - I'm in CyberSec 🖥️
